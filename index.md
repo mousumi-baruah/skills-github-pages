@@ -1,0 +1,5 @@
+Hi, this is Mousumi. I am a PhD Student (Joined January 2025) at the [University of Queensland Joint Programme]([url](https://uqiitd.org/)), [Indian Institute of Technology Delhi]([url](https://home.iitd.ac.in/)). I am working under Assistant Professor Eri Ikeda from the Department of Management Studies at IIT Delhi, and Associate Professor Vigya Sharma from the Centre for Social Responsibility in Mining at the Sustainable Minerals Institute, UQ.
+
+I have completed Masters in Development Studies (2021) from the [Department of Humanities and Social Sciences]([url](https://www.iitg.ac.in/hss/)), [Indian Institute of Technology Guwahati]([url](https://www.iitg.ac.in/)), and Bachelors with Honours in Economics (2019) from the [Cotton University, Guwahati]([url](https://cottonuniversity.ac.in/)).
+
+Prior to that, I have worked as a Research Assistant (January 2022-May 2024) at the [Tata Management Training Centre (A Division of Tata Services Limited)]([url](https://www.tmtctata.com/)), and as a Senior Research Associate- Director's Office (May 2024-November 2024) at the [Indian Institute of Management Kozhikode]([url](https://www.iimk.ac.in/)).
